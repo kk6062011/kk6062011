@@ -4,7 +4,7 @@
 
 - 🌱 Actualmente estoy estudiando programación
 
-- 💞️ Estoy buscando colaborar con una  Agencia de viajes a Maldivas <a href="https://rutasmaldivas.viajes/"> Rutas Maldivas</a>
+- 💞️ Estoy buscando colaborar con una  Agencia de viajes <a href="https://rutasmaldivas.viajes/"> Rutas Maldivas</a>
 
 - 📫 Me puedes contactar kk6062011@gmail.com
 
